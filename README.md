@@ -1,3 +1,3 @@
-![84d8619b5cdc46111844e020426b31bc](https://github.com/user-attachments/assets/b3929ace-c167-49ed-a940-284069704c2c)
+![84d8619b5cdc46111844e020426b31bc-removebg-preview (1)](https://github.com/user-attachments/assets/aaaa80ad-9022-4a7d-8006-237abbe05285)
 
 Me and her >.<
