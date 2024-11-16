@@ -1,5 +1,3 @@
-![84d8619b5cdc46111844e020426b31bc](https://github.com/user-attachments/assets/3cacc49a-61d8-4290-b2ae-351ad1c1ecc1)
+![84d8619b5cdc46111844e020426b31bc](https://github.com/user-attachments/assets/b3929ace-c167-49ed-a940-284069704c2c)
 
-ME AND HER!!
-
-
+Me and her >.<
